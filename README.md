@@ -1,0 +1,1 @@
+# HW2_Krinisky_Paradigmas
